@@ -1,4 +1,1 @@
-# akhilzekhar.github.io
-
-
-nothing much just checking/
+Info of Akhil Sekhar
